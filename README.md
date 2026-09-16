@@ -1,6 +1,6 @@
 # Welcome to my paje; My name Slava; I work in IT.
 
-## With wath i work:
+## With what i work:
 I work with java skript, HTML, and Figma （づ￣3￣）づ╭❤️～
 
 <p align-"center">
